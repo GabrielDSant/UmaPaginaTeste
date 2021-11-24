@@ -11,11 +11,11 @@ naotenhocriatividade@hotmail.com
 
 socorro@outlook.com
 
-euNãoSeiMexerComRegex@yahoo.com
+eunãoseimexercomregex@yahoo.com
 
 eeunemchegueinapartedificil@gmail.com
 
-rhmecontratasoulegal@dominioAleátorio.com
+rhmecontrata@dominioAleátorio.com
 
 euachavaquesabiaprogramar@gmail.com
 
