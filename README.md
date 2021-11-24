@@ -11,7 +11,7 @@ naotenhocriatividade@hotmail.com
 
 socorro@outlook.com
 
-eunãoseimexercomregex@yahoo.com
+eunaoseimexercomregex@yahoo.com
 
 eeunemchegueinapartedificil@gmail.com
 
