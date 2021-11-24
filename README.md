@@ -5,18 +5,18 @@ email list:
 
 gabriel1@gmail.com
 
-AlaQuebobão@gmail.com
+alaquebobão@gmail.com
 
-NaoTenhoCriatividade@hotmail.com
+naotenhocriatividade@hotmail.com
 
 socorro@outlook.com
 
-EuNãoSeiMexerComRegex@yahoo.com
+euNãoSeiMexerComRegex@yahoo.com
 
-EeuNemChegueiNaParteDificil@gmail.com
+eeunemchegueinapartedificil@gmail.com
 
-RhPfMeContrataSoulegal@dominioAleátorio.com
+rhmecontratasoulegal@dominioAleátorio.com
 
-EuAchavaQueSabiaProgramar@gmail.com
+euachavaquesabiaprogramar@gmail.com
 
-QueroDiamanteNoValorant@outlook.com
+querodiamantenovalorant@outlook.com
