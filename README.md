@@ -5,7 +5,7 @@ email list:
 
 gabriel1@gmail.com
 
-alaquebobão@gmail.com
+alaquebobao@gmail.com
 
 naotenhocriatividade@hotmail.com
 
